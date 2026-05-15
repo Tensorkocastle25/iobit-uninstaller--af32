@@ -1,4 +1,4 @@
-# 
+# Enhance Glary Utilities for PC | Glary Utilities for Windows with custom Glary Utilities for PC | Glary Utilities for Windows Script | duplicate-file-finder + startup-optimizer,
 
 
 
